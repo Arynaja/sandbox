@@ -10,7 +10,7 @@ Klerikalvertreter und Seelsorger: Ehrenwerter Bruder Albert Lichtbringer (Spirit
 
 Delegat der Kaiserlichen Dämonenjäger: Constantin Winchester (Loremaster/Darkblade)
 
-Kaiserliche Medizinerin (Lebendig und Tot) Fr. Dr. Franziska Knie
+Kaiserliche Medizinerin (Lebendig und Tot) Fr. Dr. Franziska Knie (Loremaster/Spiritist/Sharpshooter)
 
 Ehrenwerte Wissenschaftlerin (Breites Spektrum an Expertisen) Fr. Dr. Leopoldine Persica
 
